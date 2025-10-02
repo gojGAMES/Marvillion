@@ -1,0 +1,38 @@
+- [[Odessa]] and [[Aathel]] go to burn [[Norahs]] body
+- [[Luna]] and [[Avri]] plot to scam 
+- [[Enzo]] journals while Odessa and Aathel talk to [[Mr Reider]]
+- Plans hatch to steal a photo from [[Flynnigan Reid]]
+- Luna offers to make a horn dagger for Avri
+- "fucking epic" is now fey slang
+- odessa learns about mlm
+- enzo returns the armor and discusses a business venture
+- odessa discusses funeral processions with [[Morgan Crawford]]
+- odessa and aathel decorate the community center
+- luna and avri try to forge the painting
+- enzo leaves cottsville, screams, and returns
+- luna and avri get a key from reider
+- luna goes in, avri keeps watch
+- luna cant find the painting but at least doesn't it quietly
+- they go back in, find it, but hear flynn approaching. avri jumps out the window at luna's behest, while luna SHAPESHIFTS INTO HIS DEAD WIFE BEFORE DISAPPEARING OUT THE WINDOW
+- enzo talks to morgan regarding hannah
+- odessa returns the painting to reider
+- odessa reprimands enzo over the aathel incident
+- odessa and aathel go to return the crystal ball to [[Bridget Treecarver]]
+- [[Bjorn]] IS BRIDGETS SON!?!?!?!?!!?!?!
+- odessa goes to the community center for the night and to commune with [[The Lady]] but runs into morgan
+- hannah is dispelled
+- odessa communes with The Lady
+- during the night everyone has nice dreams
+- 11g 127sp 89cp given to odessa for the funeral
+- aathel speaks to [[Urbane]] who gives him A HOUSE
+- ~~The Marble Trust~~ / Waukeen trust
+- Marble Wharf
+- odessa helps [[Diggory Fjord]] with gentle reposing his wife
+- aathel assists Larcy with cooking
+- enzo finds clay and offers his orse
+- odessa invites Bjorn to join us in [[Marvillion]], luring him with horses, though meredith makes him weary to do so
+- enzo and odessa cast sending to reach his mother
+- odessa returns Norahs ashes to Mr Mcallister and burns his doll wife
+- odessa checks in on avri, and they discuss death, near-death, and the afterlife
+- enzo drinks
+- the wake proceeds. aathel leaves his sword in the fountain in a beautiful gesture
