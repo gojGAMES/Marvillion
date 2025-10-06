@@ -1,0 +1,1 @@
+A statue that's seen as a lucky charm of sorts for adventurers coming out of [[Marvillion]]

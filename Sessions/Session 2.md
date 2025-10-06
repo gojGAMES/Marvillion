@@ -38,4 +38,10 @@
 - a festival is being prepared
 - guards act suspicious by [[The Trading Post]]
 - we get to the east gate, and have to get past the tsa. no ZOT, so not too difficult
+- [[Ramora]] is beholden to [[Shantaea]]
 - we reach waukeen's square, where we see gallows
+
+For Next Session:
+- Enzo will make a prebake answer sheet for the gates
+- Luna will do forgery
+- enzo wishes to take a bath and cast sending to the [[Waterdeep]] noble

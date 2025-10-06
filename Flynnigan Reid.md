@@ -1,0 +1,1 @@
+Elven noble which The Party first encountered on the way to [[Cottsville]]. Father of 
