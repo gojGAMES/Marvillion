@@ -1,0 +1,41 @@
+- (meta) we divvy out the gold from last session
+- [[Avri]] and [[Luna]] sneak out at night to sabotage the [[Cottsville]] sign
+- they carry the sign back to the wagon
+- before that, after the wake, [[Odessa]] speaks to [[Bjorn]] who decides to join the wagon
+- we sleep for the night
+- odessa heads for the lake and sactifies some of the water
+- [[Enzo]] and [[Bart Van Holt]] prepare for departure
+- [[Aathel]] speaks to [[Urbane]], asking about the intermediary of the specific quest, that being [[Bhalmir Forgemaster]]
+- with odessa bidding [[Morgan Crawford]] adieu, we depart
+- the caravan includes [[Bart Van Holt]], [[Diggory Fjord]], [[Rurick Ironshield]], and others
+- Enzo inspects the crime site of sign theft, before sitting back down next to Bart
+- at current pace, 2.5 days
+- day one: sunny weather
+	- odessa speaks to [[Diggory Fjord]]
+	- enzo receives sending from [[Mother]] and later by [[Margarit]]. he is given instructed to marvillion to help [[Lambert]]
+	- we come upon a broken down cart feat 2 men, seemingly with a damaged wheel. It says [[Piker's Investigation Office]]
+	- Luna attempts to hide, odessa approaches and enzo joins her
+	- the two are dressed in somewhat formal clothes
+	- they ask for luna, we lie and say we havent seen her
+	- we continue on, and set up camp. odessa conjures food and volunteers to take watch
+	- enzo discusses the situation with luna, and talks about upcoming business
+	- aathel hunts for deer
+	- odessa communes with [[The Lady]], receiving a vision of an island round marvillion
+	- avri sleeps on a bush
+- day two: 
+	- an argument breaks out between an elf and a human
+	- odessa guidances [[Clay Wyatt]] who break up the fight, insisting that the heirloom be returned to the elven woman
+	- we camp with a family and eat stew
+	- a young elven woman from the family, seemingly a hunter, speaks to odessa and asks who her bias is. odessa is mostly honest but omits details
+	- she herself is a fan of the goddess of the woods, [[Meiliki]]
+	- apparently there is tomfoolery regarding the worship of "wild gods" in marvillion
+	- odessa gives their kid colored pencils and parchment
+	- we gather round and discuss plans for marvillion
+	- [[Clay Wyatt]] speaks of his past including [[Levine Buck]]
+- Day 3:
+- we encounter followers of [[Silvanus]], which [[Flynnigan Reid]] is bigoted towards. they are looking for a missing fellow named [[Varis]]
+- We finally reach [[Marvillion]]
+- a festival is being prepared
+- guards act suspicious by [[The Trading Post]]
+- we get to the east gate, and have to get past the tsa. no ZOT, so not too difficult
+- we reach waukeen's square, where we see gallows
