@@ -1,0 +1,1 @@
+[[Diggory Fjord]] is going via this location instead of via cottsville to bury his wife

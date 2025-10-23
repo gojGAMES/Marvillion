@@ -1,0 +1,60 @@
+- [[Diggory Fjord]] asks [[Odessa]] for help with his wife
+- [[Clay Wyatt]] requests to stay with the party for the next 2 days
+- [[Bart Van Holt]] asks [[Enzo]] his horse to get to the stables
+- Odessa talks to [[Duncan Ironshield]] regarding their plans, and asks to make a commission
+- [[Laura Fune]] invites us to visit her in the sparring ring
+- [[Ramora]] asks to stay with the party for the time being
+- [[Flynnigan Reid]] asks for transport of self and luggage to [[Ivory Cliff]]. [[Luna]] helps him get his luggage down for a cool 1 silver
+- Luna joins Odessa heading down [[Trades Row]]
+- Odessa casts sending to the [[Sons of Silvanus]], warning them of the hanging set to take place at [[Waukeen's Square]]
+- Odessa keeps an eye out for foods and goods from [[Turmish]], finding a handful of stalls with sweets from the region. The owner of one stall is being hassled by [[Marvillion]] guards. The dispute is allegedly about permits for melon sale. 
+	- while the guards from the [[Mercenary Alliance]] confiscate the goods, odessa confronts them
+	- They threaten to arrest odessa. [[Clay Wyatt]] watches but does not get involved
+	- odessa lets them pass and walks to the seller, who is from Turmish himself, and gives him 3 gold
+	- the mercenaries accept payment from the other melon stand. it was a setup.
+- [[Aathel]] and [[Avri]] approach [[Waukeen's Trust]]
+- Aathel looks over the documents before getting in line
+- he is served by a halfling woman who offers a meeting with [[Advisor Leonard]] to aid with the transfer
+- they are taken to the office of [[Treasurer Gevardo von Astaroth]]
+- Avri is signed as the co-owner of [[The Marble Dotchman]]
+- Aathel has [[Urbane Lindenburn]]'s account transferred into his name
+- An assistant guides them down to the vault to view the contents of the account:
+	- the deed
+	- a coin purse with 375g
+	- 4 keys to the property
+- aathel takes 100g and the 4 keys
+- the transfer fee is 5g 5s
+- meanwhile, Enzo accompanies Bart
+- They go to a stable between the square and the holm
+- They go to [[Sune's Sanctitude]]
+- enzo gets a room at the [[Golden Chalice Inn]]
+- meanwhile, Clay wishes to have a word with [[Arbiter Theobrand]]
+- They get to the [[Caravan Co HQ]]
+- [[Mary Fjord]] is gentle reposed once more
+- Odessa helps get her in, and finally [[Diggory Fjord]] thanks her for everything, and also luna
+- they move on, and have to go through the TSA again, answering the questions from the [[Marble Eyes]]
+- they arrive at the office, and luna does follow inside
+- theobrand is a fucked up guy
+- the express line was his idea
+- Odessa clocks him, citing tenets of [[Tyr]], pointing it out as oathbreaking
+- the court are invited to the [[Waukeen Hanging]]
+- clay is holding back stern words
+- luna learns how odessa died
+- Odessa asks luna for help getting new clothes
+- a cage cart is being rolled down trade's row
+- the party regroups at waukeen's square
+- the cage person, [[Varis]], is wearing only a head sack
+- Odessa prays to [[The Lady]] and [[Silvanus]]
+- [[Merchant Minister]] holds a speech right at home in the fountainhead
+- he pins the assassination of [[judge augustus]] on "the wild ones"
+- [[Judge Albrecht]] takes the word, putting emphasis on augustus being specifically murdered, blaming specifically the prisoner
+- after the horrors of the execution, [[Edmond Cotton]] reminds the crowd of the next day's festival
+- we pass by [[Sailor's Escape]] where laura is staying
+- we finally arrive at [[The Marble Dotchman]]
+- luna finds a tag from [[The Pinchers]]
+- enzo luna and aathel go to [[Trades Row]], with enzo going to [[The Pearl]] and aathel going to [[Bhalmir Forgemaster]] at [[Forgemaster's Anvil]]
+- aathel gets a rain check on an engraving
+- enzo purchases a pearl at The Pearl
+- odessa communes with her lady
+- aathel goes to [[Books Books Books (And Quills)]]
+- Enzo tasks Luna with upselling a pearl

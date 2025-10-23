@@ -1,3 +1,3 @@
-[[The Moon Maiden's shield]]
+![[Pasted image 20251014182237.png]][[The Moon Maiden's shield]]
 [[The East Bridge]] used to be "the east harringer bridge"
 [[Arbiter Theobrand]]

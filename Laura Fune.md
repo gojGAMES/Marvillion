@@ -1,0 +1,2 @@
+dwarven fighter
+[[Cottsville]] victim

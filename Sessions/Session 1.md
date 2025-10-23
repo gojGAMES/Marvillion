@@ -24,7 +24,7 @@
 - odessa communes with The Lady
 - during the night everyone has nice dreams
 - 11g 127sp 89cp given to odessa for the funeral
-- aathel speaks to [[Urbane]] who gives him A HOUSE
+- aathel speaks to [[Urbane Lindenburn]] who gives him A HOUSE
 - ~~The Marble Trust~~ / Waukeen trust
 - Marble Wharf
 - odessa helps [[Diggory Fjord]] with gentle reposing his wife

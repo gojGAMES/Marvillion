@@ -1,0 +1,58 @@
+- [[Odessa]] heads out with [[Avri]] to find a library
+- she stops a passerby to ask for recommendations, and get pointed to [[Old Oghma Library]]
+- they run into [[Enzo]] and [[Luna]], and odessa gets shoes!!!!
+- [[Aathel]] shows up with books galore, and takes them back to [[The Marble Dotchman]]
+- odessa and avri get to the library, and serach for info on [[Bjorn]] and his genealogy
+	- [[Bridget Treecarver]] fucks.
+	- that is the only way for her to have a boy
+	- male hag-spawn have it rough
+	- shunned, especially by hags, and non-magical
+- avri reads big about religion, looking for any that look like odessa's
+- odessa reads about funeral rites of [[Silvanus]] followers
+- The executioners made sure that [[Varis]] would not get to the silvanus afterlife
+- [[Luna]] and [[Aathel]] discuss potential business, and eventually decide to go to [[Bhalmir Forgemaster]] at the [[Forgemaster's Anvil]] for work
+- luna and aathel climb up along the roofs
+- Enzo pays of a night guard named [[Thomin]] for info about [[Lambert]]
+- Enzo attempts to extort some illicit business owners, but it backfires
+- aathel and luna get to the black market district
+- the giggy incident
+- luna sells the pearl for 80g to a halfling girl after calling her bluff of offering 60g
+- luna additionally asks about sewer maps and searches for caltrops. aathel points out she can get them from bhalmir
+- luna searches for bombs/explosives, but finds nothing
+- odessa goes to say goodnight to [[Bjorn]] only to find him gone. she goes to ask [[Clay Wyatt]] and found he was last found at [[Crabmoor Stables]]. She also asks about stealing an executed corpse
+- they find bjorn sleeping with the halfling owner of crabmoor stables
+- avri cleans the dead cupboard animal and steals its bones
+- luna exchanges the gold for as much copper and silver as possible
+- luna and avri put up the cottsville sign such that it is the first thing you see when entering the dotchman
+- odessa casts sending to the elder of [[Sons of Silvanus]]
+- he asks her to meet them outside [[The Evergrow]] south of the city
+- she tries to hang with her lady
+- luna dreams of performing and wakes up wearing pearls face. she is not alarmed by this somehow
+- new day
+- everyone shows up
+- odessa brings up the heist for the body
+- enzo discusses the pearl business with luna on the side. she gives him the bag o coins and offers to exchange it for a fee of 5g
+- enzo asks odessa whats in it for him with recovering the body, and she says nothing. enzo leaves.
+- the party minus enzo goes to a woodcarver and buys a coffin
+- odessa gets a birds eye view of the morticians
+- avri opens the first lock, luna the second
+- avri and luna go down the hatch and roll a nat 20 and 18 on stealth respectively
+- they find the body and call aathel over 
+- Alarm
+- [[Arbiter Theobrand]] and 2 subordinates comes in
+- luna attempts to cast sleep, but all three succeed
+- luna rolls a nat 1 initiative, uses inspiration to reroll, and gets another nat 1 
+- begin combat
+	- top of roud 1, theobrand grapples luna. he uses divine sense, not sensing Odessa because she is not undead legally. he orders  bailiff 1 to check outside, which happens to be where aathel is
+	- bailiff 2 tries to grapple luna as well, but fails. he tries again, this time succeeding
+	- avri skips her turn
+	- luna attempts to cast sleep again. theobrand passes, bailiff 2 does not
+	- bailiff 1 runs out. aathel is added to initiative between avri and luna
+	- top of round 2, theobrand kicks the bailiff 2 to wake her up.
+	- bailiff 2 tries again to grapple luna, failing twice over
+	- avri pokes her head out the coffin and casts sleep, putting bailiff 2 right back to sleep. bonus action unarmed plus flurry of blows with 8 damage on both hits
+	- aathel calls for odessa, calling in clay as well. aathel swings with his sword, but doesnt deal damage. he then instead tries to grapple, not quite succeeding. he action surges for another grapple. initially rolls a nat 1 before realizing it's the wrong roll, it becomes a success. an unarmed strike follows, but fails
+	- luna attempts to break free and succeeds. bonus action disengage, and then moves away next to avri
+	- bailiff 1 reaches for his lantern of arcane blocking and lights it with his action, creating an anti magic field in a 10' radius around him, bl;ocking aathel luna and avri
+	- top of round 3, theobrand casts the command "stay" on luna with his action
+- for retcon purposes as august wont be available next session, the command luna was afflicted by was instead "approach", and she is currently being held as a bargaining chip

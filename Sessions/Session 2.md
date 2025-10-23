@@ -5,7 +5,7 @@
 - we sleep for the night
 - odessa heads for the lake and sactifies some of the water
 - [[Enzo]] and [[Bart Van Holt]] prepare for departure
-- [[Aathel]] speaks to [[Urbane]], asking about the intermediary of the specific quest, that being [[Bhalmir Forgemaster]]
+- [[Aathel]] speaks to [[Urbane Lindenburn]], asking about the intermediary of the specific quest, that being [[Bhalmir Forgemaster]]
 - with odessa bidding [[Morgan Crawford]] adieu, we depart
 - the caravan includes [[Bart Van Holt]], [[Diggory Fjord]], [[Rurick Ironshield]], and others
 - Enzo inspects the crime site of sign theft, before sitting back down next to Bart
@@ -33,13 +33,13 @@
 	- we gather round and discuss plans for marvillion
 	- [[Clay Wyatt]] speaks of his past including [[Levine Buck]]
 - Day 3:
-- we encounter followers of [[Silvanus]], which [[Flynnigan Reid]] is bigoted towards. they are looking for a missing fellow named [[Varis]]
+- we encounter [[Sons of Silvanus]], followers of [[Silvanus]], which [[Flynnigan Reid]] is bigoted towards. they are looking for a missing fellow named [[Varis]]
 - We finally reach [[Marvillion]]
 - a festival is being prepared
 - guards act suspicious by [[The Trading Post]]
-- we get to the east gate, and have to get past the tsa. no ZOT, so not too difficult
-- [[Ramora]] is beholden to [[Shantaea]]
-- we reach waukeen's square, where we see gallows
+- we get to the east gate, and have to get past the tsa aka the [[Marble Eyes]]. no ZOT, so not too difficult
+- [[Ramora]] is beholden to [[Chauntaea]]
+- we reach [[Waukeen's Square]], where we see gallows
 
 For Next Session:
 - Enzo will make a prebake answer sheet for the gates
