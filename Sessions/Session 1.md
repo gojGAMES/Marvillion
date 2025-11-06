@@ -1,3 +1,4 @@
+#Session 
 - [[Odessa]] and [[Aathel]] go to burn [[Norahs]] body
 - [[Luna]] and [[Avri]] plot to scam 
 - [[Enzo]] journals while Odessa and Aathel talk to [[Mr Reider]]

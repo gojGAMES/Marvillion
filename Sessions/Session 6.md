@@ -1,0 +1,55 @@
+#Session 
+- The Party goes to get they makeup done, with [[Aathel]] convincing [[Clay Wyatt]] to join us
+	- [[Bjorn]] gets horse makeup
+	- [[Enzo]] gets goth'd up, turning down the tentative offer of spiderweb motifs
+	- [[Luna]] gets a treasure hoard design
+	- aathel gets goth'd up as well
+	- [[Odessa]] gets a chicken design plus mohawk
+	- [[Avri]] gets goth makeup but with eyes painted on her eyelids
+	- [[Ramora]] gets a theater mask
+	- luna gives clay makeup
+		- asks for his favorite color to which he says blue
+		- from there she gives him cloud elemental style makeup
+		- he likes it
+	- the party moves for the barrel run, with everyone minus enzo plus clay partaking
+		1. avri rolls a 9, clay a 10, luna a 10, odessa a 4, and aathel a 3. aathel and odessa immediately slam into each other and plurrar. no one else makes any progress
+		2. luna makes headway, and clay stays afloat. avri falls
+		3. luna gets cocky and falls
+		4. clay stays afloat for a while, but only ties with luna
+	- enzo offers to retrieve the prize from the wheel
+	- enzo plays the dart game first, only getting 3 points. enough to get the 5 darts though
+	- clay goes next, earning 4 points
+	- next is avri who doesnt do well the frist two rounds but GETS 2 NAT 20S BACK TO BACK IN THE FINAL ROUND
+	- Luna steps up next. just narrowly succeeds on round 1 by the skin of her apple. sad nat 1 on round 2. with 35 on the last roll, luna ties clay
+	- we move to the insult contest, with only luna and ramora participating
+	- ramora wins the tournament!
+	- we head for the shell game and enzo sees the first drow he's come across
+	- odessa whoops him
+	- Luna practically drags enzo to the debate game
+	- the topic is arcana, and the debate is between enzo and luna: evokation, good or evil?
+	- an initial complete tie gets resolved by enzo rolling a nat 1 and accidentally bringing up cure wounds for torture
+	- luna goes on and beats a scholar with his own voice
+	- we get to the raffle when clay spots [[Sylvester Indler]]
+	- clay beats him to a bloody pulp, he calls for guards
+	- Sylvester pays the guards to arrest clay, enzo pays their officer not to
+	- After everything, the tension is cut by [[Ismir]] the tiefling bard
+	- enzo recognizes her name from performances at [[the jaunty barstool]]
+	- we are approached by a gnome named [[Gondian]] from [[the divine workshop]] with the offer to have our picture taken
+		- painting includes avri, enzo, luna, aathel, ismir, odessa, clay, ramora, bjorn
+		- enzo has his armor set to fancy clothes
+	- deer.jpg
+	- [[Gon]]
+	- enzo gets grabbed and told to go to [[Steel Works Crossing]] at midnight
+	- luna 10 pull
+	- bald edmond
+	- tomato revolution
+	- enzo encourages theft
+	- [[Naughty Hat Thief]]
+	- we join the festivities proper at millie's market square
+	- Enzo speaks to [[upset shantaea priestess]] and takes seed, singular, and ignoring the "egg" thats actually a drug called [[Examination]]
+	- towards the arm wrestling we spot [[Laura Fune]]
+	- laura vs aathel, aathel just narrowly wins
+	- odessa vs aathel, a long game that aathel took in the end
+	- odessa vs avri, odessa win
+	- enzo vs aathel has a surprise burst in the form of nat 20
+	- clay vs luna, luna ties chekovs grain to her to offset the size difference. unfortunately, it was just *barley* not enough

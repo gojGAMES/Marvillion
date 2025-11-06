@@ -1,3 +1,4 @@
+#Session 
 - [[Odessa]] heads out with [[Avri]] to find a library
 - she stops a passerby to ask for recommendations, and get pointed to [[Old Oghma Library]]
 - they run into [[Enzo]] and [[Luna]], and odessa gets shoes!!!!

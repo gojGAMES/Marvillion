@@ -1,3 +1,4 @@
+#Session 
 - (meta) we divvy out the gold from last session
 - [[Avri]] and [[Luna]] sneak out at night to sabotage the [[Cottsville]] sign
 - they carry the sign back to the wagon

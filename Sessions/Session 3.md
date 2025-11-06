@@ -1,3 +1,4 @@
+#Session 
 - [[Diggory Fjord]] asks [[Odessa]] for help with his wife
 - [[Clay Wyatt]] requests to stay with the party for the next 2 days
 - [[Bart Van Holt]] asks [[Enzo]] his horse to get to the stables

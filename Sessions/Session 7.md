@@ -1,0 +1,64 @@
+#Session 
+- [[Odessa]] challenges [[Bjorn]] to arm wrestling. he dislocates her shoulder
+- [[Aathel]] vs bjorn - aathel wins
+	- little man is catching on
+- [[Avri]] vs [[Ismir]] - avri wins, ismir brought a good fight
+- [[Luna]] vs ismir - ismir is annihilated
+- ale drinking contest - everyone, including [[Laura Fune]], is joining, except [[Enzo]] [[Ramora]] and bjorn
+	- odessa is knocked out round one, as is aathel and avri and everyone except laura and luna
+	- avri throws up and returns to the dotchman, but not before enzo purifies poison
+	- luna nat 1
+- we head for the petting zoo
+- odessa guides bjorn in chicken petting
+- [[Millie Margaret]] gives them some chicken feed for the chicks
+- enzo pets a goat
+- odessa beckons luna and aathel over to pet chicken, aathel rolls a 2 and 1 with advantage
+- [[Ramora]] gets pickpocketed by a kid who takes the harmonica and the 10g, which odessa enzo and Ismir spot. odessa tells aathel to stick with bjorn and the rest give chase (ramora notwithstanding)
+- luna is a little nightmare creature
+- luna swipes the stolen goods back
+- the party gets cornered by [[Sonny Scar]] and [[The Pinchers]]
+- odessa casts detect thoughts
+- probing deeper, he's worried for a [[Benny Bullseye]]
+- another gang shows up and demands payment from the kids, [[The O'Gearys]]
+- pinchers make a run for it
+- enzo magically insults their leader and a fight breaks out
+- ismir casts fear
+- enzo uses his conquering presence
+- thunder blast from their leader launches ismir
+- odessa phantasmal force
+- fireball from another knocks both clay and ismir unconscious
+- the leader flees
+- luna takes one of their belts, making his pants fall, and then does an enzo impression
+- enzo ensures the others will run and goes to heal ismir
+- as the rest of them run odessa heals clay
+- luna claims the pants that were left behind
+- for winning the slapping contest, luna gets an electrum whistle only fey can hear
+- enzo and ismir chat a bit
+- odessa, luna, laura fune and aathel go with clay to meet [[Arbiter Adeleh Euridice]] at the potluck. it's cold.
+- clay is doubting himself
+- to the dancing contest
+	- odessa pairs with aathel, sensing goodbye might be soon
+	- enzo pairs with ramora, matching her outfit and teaching her a traditional drow dance
+	- ismir pairs with luna
+	- clay with bjorn
+	- enzo and ramora become the center of attention
+	- enzo instinctively casts dancing light, to which ismir adds green flame and odessa amplifies it with thaumaturgy
+	- finally taking second place and 
+	- [[peacock aaracocra bard]] took the win with his partner
+- odessa and aathel have a heartfelt proper goodbye
+- odessa forms a dance circle which lasts for hours
+- odessa threatens enzo <3
+- There is a coffert from the [[Crawford Family]] in [[The Marble Dotchman]]. It is Empty.
+- laura heads out
+- Odessa comes home and hears of the coffert
+- odessa tucks in bjorn and avri, and then goes to cast sending to [[Morgan Crawford]] asking about the coffert
+- she then sends to the redhead from her cult
+- enzo heads to [[Steel Works Crossing]]
+- [[Handmaiden Penelope Gabrielle]]
+- enzo makes a pact(?) to lead [[Gabriel of Archambeu]], an underdark deserter turned light cleric/baker who runs [[The Croissant Moon]] to this pipe, in 2 nights. 
+- ODESSA GET VISITED BY [[SOMETHING VERY TRUSTWORTHY]]
+- Luna wakes up in a cold sweat, realizing [[Pearl's Skin]] is missing
+- Aathel wakes up to a messenger pigeon at his window
+- it's adressed from agatha, witch of the aviary. can be found in midnight market, accessible through password
+	- "I hear an alleron cut requires a certain razor. can one be acquired here"
+- we begin the 17th of tarsac
