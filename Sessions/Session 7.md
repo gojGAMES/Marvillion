@@ -25,7 +25,7 @@
 - ismir casts fear
 - enzo uses his conquering presence
 - thunder blast from their leader launches ismir
-- odessa phantasmal force
+- odessa phantasmal killer
 - fireball from another knocks both clay and ismir unconscious
 - the leader flees
 - luna takes one of their belts, making his pants fall, and then does an enzo impression

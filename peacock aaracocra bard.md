@@ -1,0 +1,1 @@
+did our makeup and won the dancing competition at [[Shantaea's Wake-Up Call]]
